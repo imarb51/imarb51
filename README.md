@@ -35,8 +35,8 @@ I'm looking to collaborate with:
 
 ## 📫 How to Reach Me
 
-- 💌 Email: [imran.s51@gmail.com](mailto:imran.s51@gmail.com)  
-- 💼 LinkedIn: [linkedin.com/in/imranshaikh51](https://linkedin.com/in/imranshaikh51)  
+- 💌 Email: [imranance99@gmail.com](mailto:imranance99@gmail.com)  
+- 💼 LinkedIn: [linkedin.com/in/imran--shaikh](https://linkedin.com/in/imran--shaikh)  
 - 🧑‍💻 GitHub: [github.com/imarb51](https://github.com/imarb51)
 
 ---
